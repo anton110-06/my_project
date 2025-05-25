@@ -1,1 +1,1 @@
-Bogdan is a bad boy
+Bogdan is a good boy
